@@ -1,2 +1,2 @@
 # jay_music
-<img src="https://cdn.landcement.com/uploads/cloudflare/zh1.png" />
+<img src="https://oss.osuu.net/uploads/2020/04/QQ截图20200508115355.png" />
